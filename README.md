@@ -1,2 +1,2 @@
 # Pobreza-Desigualdad
-Estudios de pobreza y desigualdad 
+Estudios sobre la pobreza y desigualdad en el Perú  
